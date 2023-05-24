@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Eotica
+<blockquote cite="https://asasdodesconto.com/desconto/compre-lentes-coloridas-na-eotica-com-5-de-desconto-2214481"><p>Compre lentes coloridas na Eotica com 5% de desconto!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/compre-lentes-coloridas-na-eotica-com-5-de-desconto-2214481">Cupom Eotica</a></footer></blockquote>

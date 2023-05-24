@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Spicy
+<blockquote cite="https://asasdodesconto.com/desconto/aproveite-5-de-desconto-frete-gratis-em-compras-acima-de-rs499-na-spicy-2201373"><p>Aproveite 5% de desconto + frete grátis em compras acima de R$499 na Spicy</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/aproveite-5-de-desconto-frete-gratis-em-compras-acima-de-rs499-na-spicy-2201373">Cupom Spicy</a></footer></blockquote>

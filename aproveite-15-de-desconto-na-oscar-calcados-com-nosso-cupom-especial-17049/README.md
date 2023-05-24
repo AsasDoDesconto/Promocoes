@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Oscar Calçados
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/aproveite-15-de-desconto-na-oscar-calcados-com-nosso-cupom-especial-17049"><p>Aproveite 15% de desconto na Oscar Calçados com nosso cupom especial</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/aproveite-15-de-desconto-na-oscar-calcados-com-nosso-cupom-especial-17049">Cupom Oscar Calçados</a></footer></blockquote>

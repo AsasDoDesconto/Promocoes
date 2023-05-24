@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Mackage
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/mackage-oferta-imperdivel-de-desconto-de-ate-30-17058"><p>Mackage: oferta imperdível de desconto de até 30%</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/mackage-oferta-imperdivel-de-desconto-de-ate-30-17058">Cupom Mackage</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na C&A
+<blockquote cite="https://asasdodesconto.com/desconto/2-pares-de-calcados-por-apenas-rs21999-2219837"><p>2 Pares de Calçados por apenas R$219,99!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/2-pares-de-calcados-por-apenas-rs21999-2219837">Cupom C&A</a></footer></blockquote>

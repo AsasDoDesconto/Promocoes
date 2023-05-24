@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Yamamura
+<blockquote cite="https://asasdodesconto.com/desconto/sinta-a-brisa-fresca-com-5-de-desconto-em-ventiladores-2072193"><p>Sinta a brisa fresca com 5% de desconto em Ventiladores!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/sinta-a-brisa-fresca-com-5-de-desconto-em-ventiladores-2072193">Cupom Yamamura</a></footer></blockquote>

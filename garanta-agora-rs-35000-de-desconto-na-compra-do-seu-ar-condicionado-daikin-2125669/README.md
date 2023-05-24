@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Central Ar
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-agora-rs-35000-de-desconto-na-compra-do-seu-ar-condicionado-daikin-2125669"><p>Garanta agora R$ 350,00 de desconto na compra do seu Ar-condicionado Daikin</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-agora-rs-35000-de-desconto-na-compra-do-seu-ar-condicionado-daikin-2125669">Cupom Central Ar</a></footer></blockquote>

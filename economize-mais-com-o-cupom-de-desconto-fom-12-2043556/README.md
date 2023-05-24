@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na FOM
+<blockquote cite="https://asasdodesconto.com/desconto/economize-mais-com-o-cupom-de-desconto-fom-12-2043556"><p>Economize mais com o Cupom de Desconto FOM 12</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-mais-com-o-cupom-de-desconto-fom-12-2043556">Cupom FOM</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na PADO SA
+<blockquote cite="https://asasdodesconto.com/casa-e-decoracao/economize-15-em-compras-na-pado-sa-15889"><p>Economize 15% em compras na PADO SA!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/casa-e-decoracao/economize-15-em-compras-na-pado-sa-15889">Cupom PADO SA</a></footer></blockquote>

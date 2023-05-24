@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na LF Maquinas e Ferramentas
+<blockquote cite="https://asasdodesconto.com/desconto/economize-rs-15-em-sua-compra-na-lf-maquinas-e-ferramentas-2051542"><p>Economize R$ 15 em sua compra na LF Maquinas e Ferramentas</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-rs-15-em-sua-compra-na-lf-maquinas-e-ferramentas-2051542">Cupom LF Maquinas e Ferramentas</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Vitamine-se
+<blockquote cite="https://asasdodesconto.com/desconto/vitamine-se-compre-seus-suplementos-e-economize-na-primeira-compra-2016210"><p>Vitamine-se: Compre seus suplementos e economize na primeira compra</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/vitamine-se-compre-seus-suplementos-e-economize-na-primeira-compra-2016210">Cupom Vitamine-se</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Loja Santa Helena
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economize-20-em-produtos-selecionados-na-loja-santa-helena-16673"><p>Economize 20% na compra de amendoim na Loja Santa Helena!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economize-20-em-produtos-selecionados-na-loja-santa-helena-16673">Cupom Loja Santa Helena</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Divinalu
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/economize-com-seu-primeiro-cupom-de-desconto-na-divinalu-9472"><p>Economize com seu primeiro cupom de desconto na Divinalu</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/economize-com-seu-primeiro-cupom-de-desconto-na-divinalu-9472">Cupom Divinalu</a></footer></blockquote>

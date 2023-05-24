@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Aliexpress BR 
+<blockquote cite="https://asasdodesconto.com/desconto/economize-rs12658-no-amazfit-gtr-4-na-aliexpress-br-2218071"><p>Economize R$126,58 no Amazfit GTR 4 na Aliexpress BR</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-rs12658-no-amazfit-gtr-4-na-aliexpress-br-2218071">Cupom Aliexpress BR </a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na ZZ Mall
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-15-de-desconto-nas-marcas-arezzoco-na-zz-mall-2051806"><p>Garanta 15% de desconto nas marcas Arezzo&Co na ZZ Mall</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-15-de-desconto-nas-marcas-arezzoco-na-zz-mall-2051806">Cupom ZZ Mall</a></footer></blockquote>

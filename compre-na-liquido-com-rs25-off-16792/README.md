@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Líquido
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/compre-na-liquido-com-rs25-off-16792"><p>Compre na Líquido com R$25 off!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/compre-na-liquido-com-rs25-off-16792">Cupom Líquido</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Shop JM
+<blockquote cite="https://asasdodesconto.com/casa-e-decoracao/garanta-agora-10-de-desconto-em-sua-compra-na-shop-jm-15477"><p>Garanta agora 10% de desconto em sua compra na Shop JM!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/casa-e-decoracao/garanta-agora-10-de-desconto-em-sua-compra-na-shop-jm-15477">Cupom Shop JM</a></footer></blockquote>

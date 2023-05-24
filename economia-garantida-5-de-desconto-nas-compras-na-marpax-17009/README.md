@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na MARPAX
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economia-garantida-5-de-desconto-nas-compras-na-marpax-17009"><p>Economia garantida! 5% de desconto nas compras na MARPAX</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economia-garantida-5-de-desconto-nas-compras-na-marpax-17009">Cupom MARPAX</a></footer></blockquote>

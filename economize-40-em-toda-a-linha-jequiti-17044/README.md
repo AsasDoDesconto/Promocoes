@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Jequiti
+<blockquote cite="https://asasdodesconto.com/saude-e-beleza/economize-40-em-toda-a-linha-jequiti-17044"><p>Economize 40% em toda a linha Jequiti</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/saude-e-beleza/economize-40-em-toda-a-linha-jequiti-17044">Cupom Jequiti</a></footer></blockquote>

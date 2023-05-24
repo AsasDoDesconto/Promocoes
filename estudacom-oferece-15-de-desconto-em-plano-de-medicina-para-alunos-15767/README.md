@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Estuda.com
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/estudacom-oferece-15-de-desconto-em-plano-de-medicina-para-alunos-15767"><p>Estuda.com oferece 15% de desconto em plano de Medicina para alunos</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/estudacom-oferece-15-de-desconto-em-plano-de-medicina-para-alunos-15767">Cupom Estuda.com</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Ibyte
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economize-5-na-compra-do-seu-novo-smartwatch-com-a-ibyte-17074"><p>Economize 5% na compra do seu novo Smartwatch com a Ibyte!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economize-5-na-compra-do-seu-novo-smartwatch-com-a-ibyte-17074">Cupom Ibyte</a></footer></blockquote>

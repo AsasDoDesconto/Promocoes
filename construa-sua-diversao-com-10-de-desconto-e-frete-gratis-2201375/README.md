@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Lego
+<blockquote cite="https://asasdodesconto.com/desconto/construa-sua-diversao-com-10-de-desconto-e-frete-gratis-2201375"><p>Construa sua diversão com 10% de desconto e frete grátis!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/construa-sua-diversao-com-10-de-desconto-e-frete-gratis-2201375">Cupom Lego</a></footer></blockquote>

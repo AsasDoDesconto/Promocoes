@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Penalty
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/ganhe-rs150-de-desconto-em-compras-na-penalty-16905"><p>Ganhe R$150 de desconto em compras na Penalty!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/ganhe-rs150-de-desconto-em-compras-na-penalty-16905">Cupom Penalty</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Fossil
+<blockquote cite="https://asasdodesconto.com/desconto/tenha-mais-tecnologia-no-seu-pulso-com-10-off-nos-smartwatches-fossil-2068295"><p>Tenha mais tecnologia no seu pulso com 10% OFF nos smartwatches Fossil</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/tenha-mais-tecnologia-no-seu-pulso-com-10-off-nos-smartwatches-fossil-2068295">Cupom Fossil</a></footer></blockquote>

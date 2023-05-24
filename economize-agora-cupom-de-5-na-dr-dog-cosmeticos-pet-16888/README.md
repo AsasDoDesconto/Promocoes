@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na DR DOG cosméticos pet 
+<blockquote cite="https://asasdodesconto.com/saude-e-beleza/economize-agora-cupom-de-5-na-dr-dog-cosmeticos-pet-16888"><p>Economize Agora: Cupom de 5% na DR DOG Cosméticos Pet!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/saude-e-beleza/economize-agora-cupom-de-5-na-dr-dog-cosmeticos-pet-16888">Cupom DR DOG cosméticos pet </a></footer></blockquote>

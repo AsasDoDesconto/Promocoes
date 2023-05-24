@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Ibyte
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/desconto-especial-economize-5-em-fones-de-ouvido-na-ibyte-17072"><p>Desconto especial: Economize 5% em Fones de Ouvido na Ibyte!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/desconto-especial-economize-5-em-fones-de-ouvido-na-ibyte-17072">Cupom Ibyte</a></footer></blockquote>

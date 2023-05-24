@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Wondershare
+<blockquote cite="https://asasdodesconto.com/informatica/ganhe-20-de-desconto-em-todas-as-versoes-do-pdfelement-8-da-wondershare-12772"><p>Ganhe 20% de desconto em todas as versões do PDFelement 8 da Wondershare!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/informatica/ganhe-20-de-desconto-em-todas-as-versoes-do-pdfelement-8-da-wondershare-12772">Cupom Wondershare</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Mundos Infinitos
+<blockquote cite="https://asasdodesconto.com/desconto/leve-os-melhores-mangas-com-12-de-desconto-2125447"><p>Leve os melhores mangás com 12% de desconto</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/leve-os-melhores-mangas-com-12-de-desconto-2125447">Cupom Mundos Infinitos</a></footer></blockquote>

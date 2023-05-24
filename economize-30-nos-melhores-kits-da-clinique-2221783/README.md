@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Clinique
+<blockquote cite="https://asasdodesconto.com/desconto/economize-30-nos-melhores-kits-da-clinique-2221783"><p>Economize 30% nos melhores Kits da Clinique!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-30-nos-melhores-kits-da-clinique-2221783">Cupom Clinique</a></footer></blockquote>

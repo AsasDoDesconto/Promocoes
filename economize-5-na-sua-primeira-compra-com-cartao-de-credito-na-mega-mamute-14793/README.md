@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Mega Mamute
+<blockquote cite="https://asasdodesconto.com/eletronicos/economize-5-na-sua-primeira-compra-com-cartao-de-credito-na-mega-mamute-14793"><p>Economize 5% na sua primeira compra com cartão de crédito na Mega Mamute</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/eletronicos/economize-5-na-sua-primeira-compra-com-cartao-de-credito-na-mega-mamute-14793">Cupom Mega Mamute</a></footer></blockquote>

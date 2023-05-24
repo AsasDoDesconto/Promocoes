@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Vivara
+<blockquote cite="https://asasdodesconto.com/desconto/10-de-desconto-em-produtos-life-by-vivara-primeira-compra-2011062"><p>10% de desconto em produtos Life by Vivara - Primeira compra</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/10-de-desconto-em-produtos-life-by-vivara-primeira-compra-2011062">Cupom Vivara</a></footer></blockquote>

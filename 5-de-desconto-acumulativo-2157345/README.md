@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na PneuStore
+<blockquote cite="https://asasdodesconto.com/desconto/5-de-desconto-acumulativo-2157345"><p>5% de desconto acumulativo</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/5-de-desconto-acumulativo-2157345">Cupom PneuStore</a></footer></blockquote>

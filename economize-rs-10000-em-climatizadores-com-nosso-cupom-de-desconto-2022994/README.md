@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Central Ar
+<blockquote cite="https://asasdodesconto.com/desconto/economize-rs-10000-em-climatizadores-com-nosso-cupom-de-desconto-2022994"><p>Economize R$ 100,00 em climatizadores com nosso cupom de desconto!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-rs-10000-em-climatizadores-com-nosso-cupom-de-desconto-2022994">Cupom Central Ar</a></footer></blockquote>

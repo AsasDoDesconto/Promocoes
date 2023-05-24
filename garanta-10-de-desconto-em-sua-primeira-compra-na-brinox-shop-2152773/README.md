@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Brinox Shop
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-10-de-desconto-em-sua-primeira-compra-na-brinox-shop-2152773"><p>Garanta 10% de desconto em sua primeira compra na Brinox Shop</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-10-de-desconto-em-sua-primeira-compra-na-brinox-shop-2152773">Cupom Brinox Shop</a></footer></blockquote>

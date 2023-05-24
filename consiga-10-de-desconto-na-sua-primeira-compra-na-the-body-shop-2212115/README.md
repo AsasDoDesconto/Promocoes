@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na The Body Shop
+<blockquote cite="https://asasdodesconto.com/desconto/consiga-10-de-desconto-na-sua-primeira-compra-na-the-body-shop-2212115"><p>Consiga 10% de desconto na sua primeira compra na The Body Shop</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/consiga-10-de-desconto-na-sua-primeira-compra-na-the-body-shop-2212115">Cupom The Body Shop</a></footer></blockquote>

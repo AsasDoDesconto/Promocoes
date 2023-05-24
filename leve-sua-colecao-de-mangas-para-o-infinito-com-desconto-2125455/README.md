@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Mundos Infinitos
+<blockquote cite="https://asasdodesconto.com/desconto/leve-sua-colecao-de-mangas-para-o-infinito-com-desconto-2125455"><p>Leve sua coleção de mangás para o infinito com desconto!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/leve-sua-colecao-de-mangas-para-o-infinito-com-desconto-2125455">Cupom Mundos Infinitos</a></footer></blockquote>

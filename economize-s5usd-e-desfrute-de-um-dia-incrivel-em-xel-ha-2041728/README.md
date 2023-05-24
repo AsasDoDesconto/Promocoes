@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Xcaret
+<blockquote cite="https://asasdodesconto.com/desconto/economize-s5usd-e-desfrute-de-um-dia-incrivel-em-xel-ha-2041728"><p>Economize $5USD e desfrute de um dia incrível em Xel Há</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-s5usd-e-desfrute-de-um-dia-incrivel-em-xel-ha-2041728">Cupom Xcaret</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Detox SUPER®
+<blockquote cite="https://asasdodesconto.com/saude-e-beleza/transforme-sua-saude-com-a-detox-super-e-ganhe-desconto-de-rs5-em-maio-10616"><p>Transforme sua saúde com a Detox SUPER® e ganhe desconto de R$5 em maio</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/saude-e-beleza/transforme-sua-saude-com-a-detox-super-e-ganhe-desconto-de-rs5-em-maio-10616">Cupom Detox SUPER®</a></footer></blockquote>

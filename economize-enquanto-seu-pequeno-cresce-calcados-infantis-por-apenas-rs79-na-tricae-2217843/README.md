@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Tricae
+<blockquote cite="https://asasdodesconto.com/desconto/economize-enquanto-seu-pequeno-cresce-calcados-infantis-por-apenas-rs79-na-tricae-2217843"><p>Economize enquanto seu pequeno cresce: Calçados infantis por apenas R$79 na Tricae</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-enquanto-seu-pequeno-cresce-calcados-infantis-por-apenas-rs79-na-tricae-2217843">Cupom Tricae</a></footer></blockquote>

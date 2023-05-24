@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Enxovais Ibitinga
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/aproveite-o-desconto-de-rs5-na-enxovais-ibitinga-e-transforme-sua-casa-14344"><p>Aproveite o desconto de R$5 na Enxovais Ibitinga e transforme sua casa</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/aproveite-o-desconto-de-rs5-na-enxovais-ibitinga-e-transforme-sua-casa-14344">Cupom Enxovais Ibitinga</a></footer></blockquote>

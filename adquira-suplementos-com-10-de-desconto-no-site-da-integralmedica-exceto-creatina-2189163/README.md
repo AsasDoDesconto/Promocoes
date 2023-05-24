@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Integralmedica
+<blockquote cite="https://asasdodesconto.com/desconto/adquira-suplementos-com-10-de-desconto-no-site-da-integralmedica-exceto-creatina-2189163"><p>Adquira suplementos com 10% de desconto no site da Integralmedica (exceto Creatina)</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/adquira-suplementos-com-10-de-desconto-no-site-da-integralmedica-exceto-creatina-2189163">Cupom Integralmedica</a></footer></blockquote>

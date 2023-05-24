@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Walita
+<blockquote cite="https://asasdodesconto.com/desconto/economize-5-em-sua-compra-na-walita-1881499"><p>Economize 5% em sua compra na Walita</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-5-em-sua-compra-na-walita-1881499">Cupom Walita</a></footer></blockquote>

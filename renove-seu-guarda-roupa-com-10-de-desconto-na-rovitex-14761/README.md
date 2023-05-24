@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Rovitex
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/renove-seu-guarda-roupa-com-10-de-desconto-na-rovitex-14761"><p>Renove seu guarda-roupa com 10% de desconto na Rovitex!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/renove-seu-guarda-roupa-com-10-de-desconto-na-rovitex-14761">Cupom Rovitex</a></footer></blockquote>

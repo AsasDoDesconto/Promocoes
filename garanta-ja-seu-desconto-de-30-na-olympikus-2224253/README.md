@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Olympikus
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-ja-seu-desconto-de-30-na-olympikus-2224253"><p>Garanta já seu desconto de 30% na Olympikus!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-ja-seu-desconto-de-30-na-olympikus-2224253">Cupom Olympikus</a></footer></blockquote>

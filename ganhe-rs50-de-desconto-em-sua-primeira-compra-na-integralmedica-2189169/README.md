@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Integralmedica
+<blockquote cite="https://asasdodesconto.com/desconto/ganhe-rs50-de-desconto-em-sua-primeira-compra-na-integralmedica-2189169"><p>Ganhe R$50 de desconto em sua primeira compra na Integralmedica</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/ganhe-rs50-de-desconto-em-sua-primeira-compra-na-integralmedica-2189169">Cupom Integralmedica</a></footer></blockquote>

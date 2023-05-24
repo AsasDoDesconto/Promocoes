@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Mérito Comercial
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economize-rs100-em-suas-compras-na-merito-comercial-17043"><p>Economize R$100 em suas compras na Mérito Comercial!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economize-rs100-em-suas-compras-na-merito-comercial-17043">Cupom Mérito Comercial</a></footer></blockquote>

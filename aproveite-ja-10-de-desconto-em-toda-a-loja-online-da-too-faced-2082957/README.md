@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Too Faced
+<blockquote cite="https://asasdodesconto.com/desconto/aproveite-ja-10-de-desconto-em-toda-a-loja-online-da-too-faced-2082957"><p>Aproveite já: 10% de desconto em toda a loja online da Too Faced</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/aproveite-ja-10-de-desconto-em-toda-a-loja-online-da-too-faced-2082957">Cupom Too Faced</a></footer></blockquote>

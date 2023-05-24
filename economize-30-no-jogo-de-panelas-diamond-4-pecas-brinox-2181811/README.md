@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Brinox Shop
+<blockquote cite="https://asasdodesconto.com/desconto/economize-30-no-jogo-de-panelas-diamond-4-pecas-brinox-2181811"><p>Economize 30% no Jogo de Panelas Diamond 4 Peças Brinox</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-30-no-jogo-de-panelas-diamond-4-pecas-brinox-2181811">Cupom Brinox Shop</a></footer></blockquote>

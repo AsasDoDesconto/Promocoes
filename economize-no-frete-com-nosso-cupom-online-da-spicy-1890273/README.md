@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Spicy
+<blockquote cite="https://asasdodesconto.com/desconto/economize-no-frete-com-nosso-cupom-online-da-spicy-1890273"><p>Economize no frete com nosso cupom online da Spicy!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-no-frete-com-nosso-cupom-online-da-spicy-1890273">Cupom Spicy</a></footer></blockquote>

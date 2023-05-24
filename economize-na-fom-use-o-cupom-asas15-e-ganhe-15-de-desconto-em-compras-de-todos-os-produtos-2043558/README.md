@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na FOM
+<blockquote cite="https://asasdodesconto.com/desconto/economize-na-fom-use-o-cupom-asas15-e-ganhe-15-de-desconto-em-compras-de-todos-os-produtos-2043558"><p>Economize na FOM: Use o cupom e ganhe 15% de desconto em compras de todos os produtos</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-na-fom-use-o-cupom-asas15-e-ganhe-15-de-desconto-em-compras-de-todos-os-produtos-2043558">Cupom FOM</a></footer></blockquote>

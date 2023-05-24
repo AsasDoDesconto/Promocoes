@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Líquido
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/economize-rs-10-em-moda-e-acessorios-na-liquido-16791"><p>Economize R$ 10 em moda e acessórios na Líquido</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/economize-rs-10-em-moda-e-acessorios-na-liquido-16791">Cupom Líquido</a></footer></blockquote>

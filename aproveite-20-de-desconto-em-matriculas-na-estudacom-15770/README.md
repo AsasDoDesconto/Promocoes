@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Estuda.com
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/aproveite-20-de-desconto-em-matriculas-na-estudacom-15770"><p>Aproveite 20% de desconto em matrículas na Estuda.com</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/aproveite-20-de-desconto-em-matriculas-na-estudacom-15770">Cupom Estuda.com</a></footer></blockquote>

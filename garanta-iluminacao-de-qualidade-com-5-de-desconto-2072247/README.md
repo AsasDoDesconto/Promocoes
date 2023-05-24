@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Yamamura
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-iluminacao-de-qualidade-com-5-de-desconto-2072247"><p>Garanta iluminação de qualidade com 5% de desconto!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-iluminacao-de-qualidade-com-5-de-desconto-2072247">Cupom Yamamura</a></footer></blockquote>

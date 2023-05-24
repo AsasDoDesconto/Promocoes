@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Brinox Shop
+<blockquote cite="https://asasdodesconto.com/desconto/cozinhe-com-praticidade-com-as-panelas-antiaderentes-da-brinox-shop-2048278"><p>Cozinhe com praticidade com as panelas antiaderentes da Brinox Shop</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/cozinhe-com-praticidade-com-as-panelas-antiaderentes-da-brinox-shop-2048278">Cupom Brinox Shop</a></footer></blockquote>

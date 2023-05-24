@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Grid Motors
+<blockquote cite="https://asasdodesconto.com/automotivo/economize-rs-50-com-nosso-desconto-na-grid-motors-15899"><p>Economize R$ 50 com nosso desconto na Grid Motors!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/automotivo/economize-rs-50-com-nosso-desconto-na-grid-motors-15899">Cupom Grid Motors</a></footer></blockquote>

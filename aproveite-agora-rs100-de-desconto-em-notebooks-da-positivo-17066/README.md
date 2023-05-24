@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Positivo
+<blockquote cite="https://asasdodesconto.com/eletronicos/aproveite-agora-rs100-de-desconto-em-notebooks-da-positivo-17066"><p>Aproveite agora R$100 de desconto em notebooks da Positivo!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/eletronicos/aproveite-agora-rs100-de-desconto-em-notebooks-da-positivo-17066">Cupom Positivo</a></footer></blockquote>

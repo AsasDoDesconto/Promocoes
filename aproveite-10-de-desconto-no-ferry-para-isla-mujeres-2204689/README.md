@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Xcaret
+<blockquote cite="https://asasdodesconto.com/desconto/aproveite-10-de-desconto-no-ferry-para-isla-mujeres-2204689"><p>Aproveite 10% de desconto no ferry para Isla Mujeres</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/aproveite-10-de-desconto-no-ferry-para-isla-mujeres-2204689">Cupom Xcaret</a></footer></blockquote>

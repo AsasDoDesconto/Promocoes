@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Ibyte
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economize-5-em-pcs-notebooks-e-perifericos-na-ibyte-17075"><p>Economize 5% em PCS, Notebooks e Periféricos na Ibyte</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economize-5-em-pcs-notebooks-e-perifericos-na-ibyte-17075">Cupom Ibyte</a></footer></blockquote>

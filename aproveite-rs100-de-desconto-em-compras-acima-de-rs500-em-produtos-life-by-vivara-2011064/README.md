@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Vivara
+<blockquote cite="https://asasdodesconto.com/desconto/aproveite-rs100-de-desconto-em-compras-acima-de-rs500-em-produtos-life-by-vivara-2011064"><p>Aproveite R$100 de desconto em compras acima de R$500 em produtos Life by Vivara</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/aproveite-rs100-de-desconto-em-compras-acima-de-rs500-em-produtos-life-by-vivara-2011064">Cupom Vivara</a></footer></blockquote>

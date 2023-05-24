@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Efácil
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/garanta-10-de-desconto-em-itens-de-papelaria-na-efacil-17015"><p>Garanta 10% de desconto em itens de papelaria na Efácil</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/garanta-10-de-desconto-em-itens-de-papelaria-na-efacil-17015">Cupom Efácil</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Clinique
+<blockquote cite="https://asasdodesconto.com/desconto/tenha-uma-pele-radiante-com-a-clinique-e-ganhe-15-de-desconto-na-primeira-compra-2082949"><p>Tenha uma pele radiante com a Clinique e ganhe 15% de desconto na primeira compra</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/tenha-uma-pele-radiante-com-a-clinique-e-ganhe-15-de-desconto-na-primeira-compra-2082949">Cupom Clinique</a></footer></blockquote>

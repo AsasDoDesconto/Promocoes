@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Mundos Infinitos
+<blockquote cite="https://asasdodesconto.com/desconto/economize-na-compra-de-produtos-da-jbc-com-nosso-cupom-2125581"><p>Economize na compra de produtos da JBC com nosso cupom</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-na-compra-de-produtos-da-jbc-com-nosso-cupom-2125581">Cupom Mundos Infinitos</a></footer></blockquote>

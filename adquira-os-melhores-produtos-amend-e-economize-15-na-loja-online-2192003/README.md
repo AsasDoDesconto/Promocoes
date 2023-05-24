@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Amend
+<blockquote cite="https://asasdodesconto.com/desconto/adquira-os-melhores-produtos-amend-e-economize-15-na-loja-online-2192003"><p>Adquira os melhores produtos Amend e economize 15% na loja online!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/adquira-os-melhores-produtos-amend-e-economize-15-na-loja-online-2192003">Cupom Amend</a></footer></blockquote>

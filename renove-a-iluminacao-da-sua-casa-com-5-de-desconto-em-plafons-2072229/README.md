@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Yamamura
+<blockquote cite="https://asasdodesconto.com/desconto/renove-a-iluminacao-da-sua-casa-com-5-de-desconto-em-plafons-2072229"><p>Renove a iluminação da sua casa com 5% de desconto em Plafons</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/renove-a-iluminacao-da-sua-casa-com-5-de-desconto-em-plafons-2072229">Cupom Yamamura</a></footer></blockquote>

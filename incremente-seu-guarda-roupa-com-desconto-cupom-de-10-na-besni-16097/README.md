@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Besni
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/incremente-seu-guarda-roupa-com-desconto-cupom-de-10-na-besni-16097"><p>Incremente seu guarda-roupa com desconto: Cupom de 10% na Besni</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/incremente-seu-guarda-roupa-com-desconto-cupom-de-10-na-besni-16097">Cupom Besni</a></footer></blockquote>

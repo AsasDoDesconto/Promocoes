@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Cama In Box
+<blockquote cite="https://asasdodesconto.com/desconto/durma-melhor-com-desconto-na-cama-in-box-2153735"><p>Durma melhor com desconto na Cama In Box</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/durma-melhor-com-desconto-na-cama-in-box-2153735">Cupom Cama In Box</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Ibyte
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/aproveite-5-de-desconto-na-ibyte-e-refresque-o-seu-ambiente-17076"><p>Aproveite 5% de desconto na Ibyte e refresque o seu ambiente!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/aproveite-5-de-desconto-na-ibyte-e-refresque-o-seu-ambiente-17076">Cupom Ibyte</a></footer></blockquote>

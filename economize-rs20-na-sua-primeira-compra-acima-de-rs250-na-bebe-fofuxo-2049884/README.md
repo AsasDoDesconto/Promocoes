@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Bebê Fofuxo
+<blockquote cite="https://asasdodesconto.com/desconto/economize-rs20-na-sua-primeira-compra-acima-de-rs250-na-bebe-fofuxo-2049884"><p>Economize R$20 na sua primeira compra acima de R$250 na Bebê Fofuxo</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-rs20-na-sua-primeira-compra-acima-de-rs250-na-bebe-fofuxo-2049884">Cupom Bebê Fofuxo</a></footer></blockquote>

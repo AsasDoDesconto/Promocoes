@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Clinique
+<blockquote cite="https://asasdodesconto.com/desconto/desconto-especial-economize-10-em-toda-a-loja-online-da-clinique-2082953"><p>Desconto especial: economize 10% em toda a loja online da Clinique</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/desconto-especial-economize-10-em-toda-a-loja-online-da-clinique-2082953">Cupom Clinique</a></footer></blockquote>

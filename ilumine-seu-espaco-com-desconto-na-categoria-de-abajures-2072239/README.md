@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Yamamura
+<blockquote cite="https://asasdodesconto.com/desconto/ilumine-seu-espaco-com-desconto-na-categoria-de-abajures-2072239"><p>Ilumine seu espaço com desconto na categoria de Abajures</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/ilumine-seu-espaco-com-desconto-na-categoria-de-abajures-2072239">Cupom Yamamura</a></footer></blockquote>

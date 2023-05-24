@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Ibyte
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/aproveite-5-de-desconto-em-todos-os-tablets-da-ibyte-17073"><p>Aproveite 5% de desconto em todos os Tablets da Ibyte</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/aproveite-5-de-desconto-em-todos-os-tablets-da-ibyte-17073">Cupom Ibyte</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Repassa
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/desconto-de-10-na-repassa-aproveite-para-renovar-seu-guarda-roupa-17003"><p>Desconto de 10% na Repassa: Aproveite para renovar seu guarda-roupa!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/desconto-de-10-na-repassa-aproveite-para-renovar-seu-guarda-roupa-17003">Cupom Repassa</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Xcaret
+<blockquote cite="https://asasdodesconto.com/desconto/economize-10-dolares-na-sua-visita-ao-xplor-2189199"><p>Economize 10 dólares na sua visita ao Xplor</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-10-dolares-na-sua-visita-ao-xplor-2189199">Cupom Xcaret</a></footer></blockquote>

@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Lojas taQi
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-ja-10-de-desconto-em-iphones-seminovos-na-lojas-taqi-2077601"><p>Garanta já 10% de desconto em iPhones Seminovos na Lojas taQi</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-ja-10-de-desconto-em-iphones-seminovos-na-lojas-taqi-2077601">Cupom Lojas taQi</a></footer></blockquote>

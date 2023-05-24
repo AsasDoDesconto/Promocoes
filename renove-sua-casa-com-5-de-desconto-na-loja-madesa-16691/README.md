@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Loja Madesa
+<blockquote cite="https://asasdodesconto.com/casa-e-decoracao/renove-sua-casa-com-5-de-desconto-na-loja-madesa-16691"><p>Renove sua casa com 5% de desconto na Loja Madesa</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/casa-e-decoracao/renove-sua-casa-com-5-de-desconto-na-loja-madesa-16691">Cupom Loja Madesa</a></footer></blockquote>

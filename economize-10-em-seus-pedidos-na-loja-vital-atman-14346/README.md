@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Vital Atman
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economize-10-em-seus-pedidos-na-loja-vital-atman-14346"><p>Economize 10% em seus pedidos na loja Vital Atman</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economize-10-em-seus-pedidos-na-loja-vital-atman-14346">Cupom Vital Atman</a></footer></blockquote>

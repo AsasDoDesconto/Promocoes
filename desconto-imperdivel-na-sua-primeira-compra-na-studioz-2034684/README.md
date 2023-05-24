@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na StudioZ
+<blockquote cite="https://asasdodesconto.com/desconto/desconto-imperdivel-na-sua-primeira-compra-na-studioz-2034684"><p>Desconto imperdível na sua primeira compra na StudioZ!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/desconto-imperdivel-na-sua-primeira-compra-na-studioz-2034684">Cupom StudioZ</a></footer></blockquote>

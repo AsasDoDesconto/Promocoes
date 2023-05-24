@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Fossil
+<blockquote cite="https://asasdodesconto.com/desconto/bem-vindo-ao-mundo-fossil-com-15-de-desconto-na-sua-primeira-compra-2068301"><p>Bem-vindo ao mundo Fossil com 15% de desconto na sua primeira compra!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/bem-vindo-ao-mundo-fossil-com-15-de-desconto-na-sua-primeira-compra-2068301">Cupom Fossil</a></footer></blockquote>

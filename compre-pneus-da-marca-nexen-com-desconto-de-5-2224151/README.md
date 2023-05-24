@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Gpneus
+<blockquote cite="https://asasdodesconto.com/desconto/compre-pneus-da-marca-nexen-com-desconto-de-5-2224151"><p>Compre pneus da marca Nexen com desconto de 5%</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/compre-pneus-da-marca-nexen-com-desconto-de-5-2224151">Cupom Gpneus</a></footer></blockquote>

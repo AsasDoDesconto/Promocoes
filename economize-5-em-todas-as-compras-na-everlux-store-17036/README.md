@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Everlux Store
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/economize-5-em-todas-as-compras-na-everlux-store-17036"><p>Economize 5% em todas as compras na Everlux Store</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/economize-5-em-todas-as-compras-na-everlux-store-17036">Cupom Everlux Store</a></footer></blockquote>

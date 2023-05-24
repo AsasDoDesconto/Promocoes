@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Vapza
+<blockquote cite="https://asasdodesconto.com/mais-ofertas/cozinha-saudavel-com-20-de-desconto-na-vapza-12847"><p>Cozinha saudável com 20% de desconto na Vapza</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/mais-ofertas/cozinha-saudavel-com-20-de-desconto-na-vapza-12847">Cupom Vapza</a></footer></blockquote>

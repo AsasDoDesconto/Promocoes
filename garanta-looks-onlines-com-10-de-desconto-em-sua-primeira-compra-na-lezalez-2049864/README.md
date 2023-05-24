@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Lezalez
+<blockquote cite="https://asasdodesconto.com/desconto/garanta-looks-onlines-com-10-de-desconto-em-sua-primeira-compra-na-lezalez-2049864"><p>Garanta looks onlines com 10% de desconto em sua primeira compra na Lezalez</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/garanta-looks-onlines-com-10-de-desconto-em-sua-primeira-compra-na-lezalez-2049864">Cupom Lezalez</a></footer></blockquote>

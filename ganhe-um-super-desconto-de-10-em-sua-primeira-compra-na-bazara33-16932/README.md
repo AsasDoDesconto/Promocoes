@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na BAZARA33
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/ganhe-um-super-desconto-de-10-em-sua-primeira-compra-na-bazara33-16932"><p>Ganhe um super desconto de 10% em sua primeira compra na BAZARA33</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/ganhe-um-super-desconto-de-10-em-sua-primeira-compra-na-bazara33-16932">Cupom BAZARA33</a></footer></blockquote>

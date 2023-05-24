@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Speedo
+<blockquote cite="https://asasdodesconto.com/moda-e-acessorios/sinta-se-em-forma-com-15-de-desconto-na-speedo-17054"><p>Sinta-se em forma com 15% de desconto na Speedo</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/moda-e-acessorios/sinta-se-em-forma-com-15-de-desconto-na-speedo-17054">Cupom Speedo</a></footer></blockquote>

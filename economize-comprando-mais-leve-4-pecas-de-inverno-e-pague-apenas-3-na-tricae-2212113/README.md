@@ -1,0 +1,3 @@
+# [Cupom de Desconto](https://github.com/CupomDeDesconto/Promocoes/blob/main/README.md)
+Esse é para quem procura cupom de desconto na Tricae
+<blockquote cite="https://asasdodesconto.com/desconto/economize-comprando-mais-leve-4-pecas-de-inverno-e-pague-apenas-3-na-tricae-2212113"><p>Economize comprando mais: Leve 4 peças de inverno e pague apenas 3 na Tricae!</p><footer>Confira o código para esse cupom em <a href="https://asasdodesconto.com/desconto/economize-comprando-mais-leve-4-pecas-de-inverno-e-pague-apenas-3-na-tricae-2212113">Cupom Tricae</a></footer></blockquote>
